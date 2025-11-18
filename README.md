@@ -7,4 +7,5 @@ If you would like to know more about the projects I worked on in my previous exp
 
 🧐 Don't hesitate to reach out.
 
-Connect with me: [LinkedIn](#[LinkedIn](https://www.linkedin.com/in/armita-katarapu))
+Connect with me: [LinkedIn](https://www.linkedin.com/in/armita-katarapu)
+
